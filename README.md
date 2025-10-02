@@ -1,1 +1,2 @@
-# do-now-markdown-practice
+# bonding trip(pool section)
+During the **bonding trip** when we went to the pool and they had the slide into the pool.It was fun *going down the slide and into the pool*.Then the rest of the trip was fun but not as fun the pool and the beggining.
